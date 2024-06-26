@@ -1,0 +1,1 @@
+Played this after-party as offline, not online, and got 10th place among 19 teams.
